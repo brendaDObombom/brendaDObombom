@@ -3,6 +3,8 @@
 - Meu nome é Brenda Eduarda Martins dos Santos. 🖤
 - Eu sou estudante e estou aprendendo a linguagem de progamação JavaScript, html e css. 🖤
 - Ultilizo esse espaço para armazenar meus códigos e compartilhar experiencias.
+- gosto de meninos loiro e gostosos com uma peça enorme de 19cm
+- as vezes aparento ser uma pessoa chata mais sou muito chata mesmo kk
 
 ### Meu email de contato é 📧 
 martins.santos.brenda@escola.pr.gov.br
